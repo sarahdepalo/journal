@@ -1,0 +1,5 @@
+# Week 10 - 10 Week Reflection
+
+*Prompt - After 10 weeks, how are you feeling about your decision to attend Digital Crafts?*
+
+I’m very happy with my decision to attend DigitalCrafts. I was nervous to make the jump to attend the course after all the articles I’ve read about how “bad” bootcamps are and how “you can learn everything online by yourself for free”. You probably can learn all of this online, but the amount of support I’ve received, the projects we’ve done, and just the content and course itself has made it worth it. Being able to ask for help when needed and immediately getting it, is also invaluable. So far, the pace has been fast, but manageable and the amount I’ve learned in just a couple of months is insane. The fact that DigitalCrafts was very career oriented and posted their audited job reports was also one of the driving forces for choosing this school, and so far it has been a great experience. I’m excited for career week and the rest of the program! 
